@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi, I'm Chenice <3
 ![image](https://github.com/chenicetaylor5/chenicetaylor5/assets/146015275/4de79d77-2c2b-4b17-9b36-6c3cfb62f051)
 
 
