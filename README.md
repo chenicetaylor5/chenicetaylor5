@@ -1,5 +1,5 @@
 ### Hi there 👋
-![Coding GIF - Coding - Discover   Share GIFs](https://github.com/chenicetaylor5/chenicetaylor5/assets/146015275/da5cc5dd-8a4a-4615-8865-bdeaeac025fe)
+![image](https://github.com/chenicetaylor5/chenicetaylor5/assets/146015275/4de79d77-2c2b-4b17-9b36-6c3cfb62f051)
 
 
 
