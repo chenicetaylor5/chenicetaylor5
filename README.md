@@ -1,5 +1,7 @@
-### 🫧 Hi, I'm Chenice 🫧
-💫 About me 💫
+# 🫧 Hi, I'm Chenice 🫧
+![_](https://github.com/chenicetaylor5/chenicetaylor5/assets/146015275/738b53fd-0022-468e-9dea-daea75389e66)
+
+#### 💫 About me 💫
 - I'm a first-year Computer Science student at Georgia State University.
 - I'm proficient in Python and familiar with Java and Javascript.
 - I love learning new skills!
