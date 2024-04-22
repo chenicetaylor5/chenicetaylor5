@@ -1,5 +1,5 @@
 # 🫧 Hi, I'm Chenice 🫧 
-![mc](https://github.com/chenicetaylor5/chenicetaylor5/assets/146015275/589394df-c1c4-4625-bec2-f03f4a31481e)
+![Minecraft Aesthetic](https://github.com/chenicetaylor5/chenicetaylor5/assets/146015275/5cd29d0a-0389-4334-803d-f5ee3f79c3f1)
 
 #### 💫 About me 💫
 - I'm a first-year Computer Science student at Georgia State University.
