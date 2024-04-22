@@ -1,5 +1,5 @@
-# 🫧 Hi, I'm Chenice 🫧 ![mc](https://github.com/chenicetaylor5/chenicetaylor5/assets/146015275/589394df-c1c4-4625-bec2-f03f4a31481e)
-
+# 🫧 Hi, I'm Chenice 🫧 
+![mc](https://github.com/chenicetaylor5/chenicetaylor5/assets/146015275/589394df-c1c4-4625-bec2-f03f4a31481e)
 
 #### 💫 About me 💫
 - I'm a first-year Computer Science student at Georgia State University.
