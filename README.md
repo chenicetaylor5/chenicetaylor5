@@ -1,5 +1,5 @@
 # 🫧 Hi, I'm Chenice 🫧
-![image](https://github.com/chenicetaylor5/chenicetaylor5/assets/146015275/5703dd0a-707f-4fc0-9854-2d60b4f81cf1)
+![mc](https://github.com/chenicetaylor5/chenicetaylor5/assets/146015275/589394df-c1c4-4625-bec2-f03f4a31481e)
 
 
 #### 💫 About me 💫
