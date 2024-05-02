@@ -2,7 +2,7 @@
 ![Minecraft Aesthetic](https://github.com/chenicetaylor5/chenicetaylor5/assets/146015275/5cd29d0a-0389-4334-803d-f5ee3f79c3f1)
 
 #### 💫 About me 💫
-- I'm a first-year Computer Science student at Georgia State University.
+- I'm a rising second-year Computer Science student at Georgia State University.
 - I'm proficient in Python and familiar with Java and Javascript.
 - I love learning new skills!
 <!--
